@@ -1,1 +1,1 @@
-mail@chwr.xyz
+mail@chairs.moe
